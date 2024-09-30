@@ -1,4 +1,4 @@
-## Someday i'm gonna kill everyone in close proximity and then maybe myself if i feel like it
+## im gay im gay ijm gay ::::33333
 ![image](https://github.com/user-attachments/assets/a27e083e-b470-48a6-baa2-13a005c5675f)
 
 <!--
