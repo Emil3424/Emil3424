@@ -1,4 +1,5 @@
-## Hi there 👋
+## Someday i'm gonna kill everyone in close proximity and then maybe myself if i feel like it
+![image](https://github.com/user-attachments/assets/a27e083e-b470-48a6-baa2-13a005c5675f)
 
 <!--
 **Emil3424/Emil3424** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
